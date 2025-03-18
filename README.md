@@ -1,0 +1,1 @@
+# explorando-Recursos-de-IA-enerativa-Copilot-e-openAI
