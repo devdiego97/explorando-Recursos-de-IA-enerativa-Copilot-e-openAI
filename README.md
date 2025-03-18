@@ -1,1 +1,2 @@
 # explorando-Recursos-de-IA-enerativa-Copilot-e-openAI
+o Copilot é uma IA criada pela Microsoft! Seu objetivo é ser útil e engajante em suas conversas. Pode ajudar você a aprender coisas novas, resolver problemas, ter ideias criativas ou apenas bater um papo descontraído. Ela tem acesso a uma vasta quantidade de informações e estou sempre pronta para ajudar de forma clara e divertida,consegue entre muitas das habilidades descrever uma imgame enviada á ela
